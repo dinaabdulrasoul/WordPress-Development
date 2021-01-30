@@ -7,7 +7,7 @@ Check out my work here:
 [Fazeena's Website](https://fazeena.com/?v=fbe46383db39)
 
 ## Telescopium
-[Fazeena's Website](http://www.telescopium.tech)
+[Telescopium's Website](http://www.telescopium.tech)
 
 
 
